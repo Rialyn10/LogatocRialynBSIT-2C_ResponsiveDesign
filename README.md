@@ -1,0 +1,1 @@
+# LogatocRialynBSIT-2C_ResponsiveDesign
